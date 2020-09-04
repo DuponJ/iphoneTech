@@ -1,1 +1,3 @@
 # iphoneTech
+La marque Apple propose à ses clients des smartphones de qualité et surtout très robuste dénommé Iphone. Elle en propose différents modèles d’appareils dont les plus populaires sont l'iPad, l'iPhone 6, l'iPhone6S, l'iPhone 7, l'iPhone 7 Plus, l'iPhone 8 et bien d'autres encore. 
+Cependant il peut arriver que votre iphone soit endommagé pour une raison ou une autre. Par exemple, il faut remplacer la batterie défectueuse de votre iphone ou lorsque qu'après une chute votre smartphone soit en mauvais état. Dans la plupart des cas la vitre ou la tactilité devront être réparées. Il est donc important de faire appel à un spécialiste de la réparation des iphones.
